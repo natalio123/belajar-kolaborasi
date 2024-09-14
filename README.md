@@ -4,3 +4,4 @@ collab anak SMANIX dan anak SMANSA <br>
 - Edward Karundeng
 - Pierre Kelung
 - Febrian Hemeto
+Natalio paling ganteng
